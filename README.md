@@ -1,5 +1,5 @@
 - Hi, I’m @tonnykblaire
-- 👀 I’m interested in ...
+- 👀 I’m interested in knowledge.
 - 🌱 I’m currently learning software engineering 
 - 💞️ I’m looking to collaborate on projects that target sales and marketing efficiency.
 - 📫 How to reach me, email me at tonnydalmier5@gmail.com. also on WhatsApp 0745323222.
